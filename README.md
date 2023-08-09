@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GitHub-Hpmi5
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on Coding
+- 📫 How to reach me King_Steve231a@outlook.com or on discord Hpmi5#0001
